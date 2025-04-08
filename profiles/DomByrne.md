@@ -1,2 +1,2 @@
-GitHub Username: DominicByrneSecondAccount
-Name: Dominic Byrne
+GitHub Username: mikayla05
+Name: Mikayla Jebreen
